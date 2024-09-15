@@ -9,4 +9,4 @@ I provided a Sketch of the connection diagram as well
 
 
 
-Rayes
+Hamza Zarah, Joel Erbsland und Rayes Diyab
